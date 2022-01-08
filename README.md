@@ -2,7 +2,7 @@
 I love takuya
 
 ## Overview
-I love takuya kimura And his 2nd Solo Album Next Destinations's concept image is very very awesome.
+I love takuya kimura And his 2nd Solo Album Next Destinations's concept image is very very awesome.  
 Of course, it is "[一歩踏みだす言葉PROJECT](https://takuya-kimura.jp/poster/)".
 I want got and memorize these.
 
